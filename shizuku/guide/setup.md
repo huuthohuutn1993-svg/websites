@@ -1,3 +1,4 @@
+BL0QU&AD0? CL!QU& N0 ANuNC10 P4RA C0Nt1NU4R.
 # User manual
 
 [[toc]]
